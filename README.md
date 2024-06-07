@@ -7,7 +7,7 @@
 
 💞️ I'm looking to collaborate on exciting projects and hackathons.
 
-📫 How to reach me: (mailto:jeeyainamdar@gmail.com)
+📫 How to reach me: jeeyainamdar@gmail.com
 
 ⚡ Fun fact: I love solving coding puzzles and participating in hackathons for the thrill of problem-solving!
 
